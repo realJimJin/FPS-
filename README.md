@@ -1,2 +1,2 @@
 # FPS-
-If You're not Jim Jin, DO NOT Enter
+If You're not Nathan, DO NOT Enter
